@@ -1,4 +1,4 @@
-![Logo](https://imgur.com/vwC0yXS) **Crypto Growth**
+![Logo](https://i.imgur.com/vwC0yXS.png) **Crypto Growth**
 
 ## Privacy Policy
 
