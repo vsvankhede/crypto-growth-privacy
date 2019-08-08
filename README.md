@@ -1,7 +1,5 @@
 ![Logo](https://i.imgur.com/vwC0yXS.png) 
-## Crypto Growth
-
-## Privacy Policy
+## Crypto Growth Privacy Policy
 
 Vijay Vankhede built the Crypto Growth app as a Free app. This SERVICE is provided by Vijay Vankhede at no cost and is intended for use as is.
 
